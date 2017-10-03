@@ -9,3 +9,7 @@ jajaajajajaj cuentame un chiste
 
 jajajajajajajajjajajajaajjaajjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 kkkkkkkkkkkkkk
+
+
+
+Asiel es del KKK (Kupa Kingdom Kastle)
